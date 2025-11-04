@@ -1,4 +1,5 @@
-## Hi there 👋
+![1000045401](https://github.com/user-attachments/assets/a52c59b5-cad2-413e-bb69-40f51b1643f6)
+
 
 <!--
 **JellyfishPrxncess/JellyfishPrxncess** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
