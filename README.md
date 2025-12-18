@@ -1,4 +1,3 @@
-![1000045401](https://github.com/user-attachments/assets/a52c59b5-cad2-413e-bb69-40f51b1643f6)
 
 
 <!--
