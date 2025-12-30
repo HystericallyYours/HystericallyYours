@@ -1,4 +1,4 @@
-![1000047867](https://github.com/user-attachments/assets/48d8dfa4-b146-4fcc-8a61-fecfa2646062)
+![1000047867](https://github.com/user-attachments/assets/48d8dfa4-b146-4fcc-8a61-fecfa2646062) ᴀʀᴛɪꜱᴛ⠀|⠀ᴡɪᴘ ᴠᴛᴜʙᴇʀ⠀|⠀ᴍᴀʏʙᴇ ᴀ ɢᴀᴍᴇ ᴅᴇᴠ ᴏɴᴇ ᴅᴀʏ
 
 
 
